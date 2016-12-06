@@ -6,6 +6,9 @@ Krpano教程
 4.[720全景](http://www.720qj.com/)  
 5.[krpano](http://kpano.com/)  
 6.[krpano中文网](www.krpano360.com)  
-7.[光鱼全景](http://www.gy720.com/)  
-8.[720云](http://720yun.com/)  
+7.[中国全景摄影论坛](http://chinavr.net/)
+#商业网站
+1.[光鱼全景](http://www.gy720.com/)  
+2.[720云](http://720yun.com/)  
+3.[四方环视](http://www.ivrpano.com/)
  
